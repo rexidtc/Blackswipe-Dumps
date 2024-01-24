@@ -27,6 +27,7 @@
 
   Seller Telegram: t.me/@faketarek
   Seller Discord: trkx64
+  Shop Seller: https://klaverwin.sellpass.io/
 
    $35.00 USD | lifetime access
    $20.00 USD | 1 month access
