@@ -22,10 +22,12 @@
 
 ```
  📨 Social
- 
-  Discord:  trkx64
-  Telegram: t.me/@rdmo112 dev my tele t.me/@faketarek
-  
+   
+  Developer Telegram: t.me/@rdmo112
+
+  Seller Telegram: t.me/@faketarek
+  Seller Discord: trkx64
+
    $35.00 USD | lifetime access
    $20.00 USD | 1 month access
    $15.00 USD | 1 week  access
