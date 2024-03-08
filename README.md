@@ -23,14 +23,13 @@
 ```
  📨 Social
    
-  Developer Telegram: t.me/@rdmo112
+  Developer Telegram: t.me/@dizzylmao
 
-  Seller Telegram: t.me/@faketarek
   Seller Discord: trkx64
   Shop Seller: https://klaverwin.sellpass.io/
 
-   $35.00 USD | lifetime access
-   $20.00 USD | 1 month access
+   $55.00 USD | lifetime access
+   $30.00 USD | 1 month access
    $15.00 USD | 1 week  access
 
 
