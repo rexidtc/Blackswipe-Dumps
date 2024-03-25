@@ -23,9 +23,9 @@
 ```
  📨 Social
    
-  Developer Telegram: t.me/@dizzylmao
+  Developer Telegram: t.me/criminaltrk
 
-  Seller Discord: trkx64
+  Seller Discord: 2312313132
   Shop Seller: https://klaverwin.sellpass.io/
 
    $55.00 USD | lifetime access
